@@ -1,1 +1,1 @@
-# Scotty-Chris-Josh-PartnerName-Portfolio-MergePractice
+# Scotty-Chris-Josh-Portfolio-MergePractice
